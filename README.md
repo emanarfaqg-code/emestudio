@@ -3,3 +3,5 @@ EmeStudio is a modern streetwear clothing brand known for stylish hoodies, trend
 # Visit Website
 https://emestudiosuk.com/
 
+# tumblr
+https://www.tumblr.com/blog/sweetlyradiantparagon
