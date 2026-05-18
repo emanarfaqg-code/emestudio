@@ -5,3 +5,5 @@ https://emestudiosuk.com/
 
 # tumblr
 https://www.tumblr.com/blog/sweetlyradiantparagon
+# eme studios jersy
+https://emestudiosuk.com/sweatshirts/
