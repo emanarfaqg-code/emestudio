@@ -7,3 +7,5 @@ https://emestudiosuk.com/
 https://www.tumblr.com/blog/sweetlyradiantparagon
 # eme studios jersy
 https://emestudiosuk.com/sweatshirts/
+# linkedin
+https://www.linkedin.com/in/eman-arfaqg-827b5240a/
