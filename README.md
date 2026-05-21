@@ -9,3 +9,5 @@ https://www.tumblr.com/blog/sweetlyradiantparagon
 https://emestudiosuk.com/sweatshirts/
 # linkedin
 https://www.linkedin.com/in/eman-arfaqg-827b5240a/
+# WordPress.com
+https://emestudios6.wordpress.com/2026/05/21/eme-studios-modern-streetwear-fashion/
